@@ -1,0 +1,1 @@
+# Tugas-UAS-pengolahan-citra-pertemuan-16
